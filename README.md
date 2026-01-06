@@ -57,7 +57,7 @@ We may update this Privacy Policy periodically. Continued use of the App constit
 
 **Contact**
 
-For privacy questions, contact us at: privacy@eurosafe.app
+For privacy questions, contact us at: rtimetasks@gmail.com
 
 ---
 
@@ -199,7 +199,7 @@ EuroSafe е подходящ за всички възрасти. Ние не с�
 
 **Контакт**
 
-За въпроси относно поверителността, свържете се с нас на: privacy@eurosafe.app
+За въпроси относно поверителността, свържете се с нас на: rtimetasks@gmail.com
 
 ---
 
